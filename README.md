@@ -17,3 +17,5 @@ the other thing i learned since i worked at penn is that its  triggering for ppl
 i want to look like a neutral person all the time lol, like i have a neutral expression on my face all the time bc of the botox lololl https://www.youtube.com/watch?v=SSEjPuR11_k
 
 https://www.youtube.com/watch?v=uwybHcVPi20 the absolute PROs, know not to engage with him bc hes a crazy person (well acting like one bc its a prank), they are not even making eye contact with him, completely ignoring him on purpose
+
+https://www.youtube.com/watch?v=2rihouf7wOY i was looking for the original clip but they made this mini documentary on it lol, ok WHAT DOES SHE SAY IN THE END, "do u have any advice for anyone writing their own note" "do not write a note" dont engage with someone elses crap either, bc it blew up in their face and they got attacked for doing the right thing
